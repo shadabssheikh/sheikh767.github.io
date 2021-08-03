@@ -2,4 +2,4 @@
 ## Update! to live-website
 <hr>
 
-### Will keep upgrading as i learn new stuff ;)
+### Thank You for Visiting ;)
